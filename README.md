@@ -1,4 +1,1 @@
-# LKS
-Data for Roblox Grow A Garden fan game
-
 1CqsR8eKxj8f7Z9maqwNnVaL2PkEgvTDzVJ3Ktf04usek+R4o6S3sNAETC4hFarcNG6DeD0JIDQISnEZvkIDLqEWRtaEhtOAKjpDNsIJMEhiMvOEhpOPsqGYjTZeK5QuEstrvYCuewrds68HS7DVDQ==
